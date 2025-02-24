@@ -1,3 +1,3 @@
 - Email: coding.debatra@gmail.com
-- LinkedIn:[LinkedIn](www.linkedin.com/in/debatra-das)
-- X:[X](https://x.com/DebatraX)
+- LinkedIn:[debatra-das](www.linkedin.com/in/debatra-das)
+- X:[DebatraX](https://x.com/DebatraX)
